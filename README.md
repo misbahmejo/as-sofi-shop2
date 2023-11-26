@@ -1,0 +1,1 @@
+# as-sofi-shop2
